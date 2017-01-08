@@ -92,7 +92,7 @@ Appendix: Sample Pre-Booked Itinerary for a Star Wars Day At Sea Cruise
 - Items with a ^ were pre-booked by me, and items with a + were scheduled by the cruise director.
 - The Eastern Caribbean rotations are AERAERA, ERAERAE and RAERAER. The first three nights are the rotation menus for each main dining room, the 4th night is pirate night, then princess night, captain's gala and the farewell menu. Formal night is Sunday, semiformal is Thursday.
 
-Day 1, Embarcation
+Day 1, Embarkation
 ------------------
 - Check in, casual lunch on deck, explore the ship
 - + Required safety drill around 4 PM
@@ -155,7 +155,7 @@ Day 7, Disney Castaway Cay
 - 5:45 PM Dinner at our assigned restaurant
 - 8:00 PM Show
 
-Day 8, Debarcation
+Day 8, Debarkation
 ---------------------
 - Early breakfast in your assigned restaurant, at your assigned time.  You need to be out of your room by your breakfast time.
 - You must leave the ship right after breakfast.
