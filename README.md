@@ -5,7 +5,7 @@ Disney Cruise Planning for Geeks
 
 This is a step by step guide to planning a 1-week Disney cruise.  
 
-We have been on several Disney cruises, including:
+We have been on four Disney cruises, including:
 - The Disney Magic in the Caribbean: Port Canaveral, Key West, Grand Cayman, Cozumel, Castaway Cay
 - The Disney Fantasy with Star Wars Day at Sea: Port Canaveral, Cozumel, Grand Cayman, Castaway Cay
 - The Disney Magic in Norway: Copenhagen, Stavanger, Alesund, Geiranger, Bergen
@@ -85,12 +85,12 @@ Step 9: Request a dining rotation.
 - Dining rotations for your specific itinerary can be found on forums like disboards.com.
 - Your dining rotation won't be confirmed until you arrive on board.  You can request a change at that time, but there's no guarantee they'll be able to accomodate your request.
 
-That pretty much covers it!  The rest can be planned after you arrive on board.
+** That pretty much covers it!  The rest can be planned after you arrive on board. **
 
 Appendix: Sample Pre-Booked Itinerary for a Star Wars Day At Sea Cruise
 =======================================================================
 - Items with a ^ were pre-booked by me, and items with a + were scheduled by the cruise director.
-- The Eastern Caribbean rotations are AERAERA, ERAERAE and RAERAER. The first three nights are the rotation menus for each main dining room, the 4th night is pirate night, then princess night, captain's gala and the farewell menu. Formal night is Sunday, semiformal is Thursday.
+- The Eastern Caribbean rotations are AERAERA, ERAERAE and RAERAER. The first three nights are the rotation menus for each main dining room, the 4th night is pirate night, then princess night, captain's gala and the farewell menu. Formal night is Sunday, semiformal is Thursday.  The rotations are different for different itineraries.
 
 Day 1, Embarkation
 ------------------
