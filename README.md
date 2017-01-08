@@ -15,17 +15,19 @@ A few tips:
 - The Deluxe Family Oceanview Stateroom with Verandah is a great choice if you're looking for a mid-level option.  Or, check out the Deluxe Family Oceanview Stateroom if you don't care about a balcony.  The two-room bathroom makes life easier.
 - Try to get a cabin midship, or closer to the kids' clubs, if you have children.
 - Cruisecritic.com has very informative and helpful cabin reviews.  If you can't find a review for your exact ship and cabin, you can check the review for the same cabin on the sister ship: Magic/Wonder, or Fantasy/Dream.
-- The adults in our family prefer more days in port to explore new cultures, while the children prefer more days at sea to enjoy the ship's activities and kids' club.  You can decide what's best for your family!
+- The adults in our family prefer more days in port to explore new cultures, while the children prefer more days at sea to enjoy the ship's activities, pools, waterslides, and kids' club.  You can decide what's best for your family!
 - The smaller ships and larger ships each have their own advantages.  Don't let ship size be the determining factor.
 
 Step 2: Choose early or late seating when you book the cruise
 - This blog covers the pros and cons nicely: http://magicaldistractions.com/disney-cruise-dinner-seating/
 - We chose late seating for our first few cruises, but found it disruptive to go to a show, then dinner, have the kids Dine & Play for a few minutes, and then pick them up for bedtime.  We're trying early seating next time.
-- If you don't get your first choice, ask to be put on the wait list.
+- If you don't get your first choice of dinner seating, ask to be put on the wait list.
+- Your show time will be opposite your dinner time: early dining guests see their show while the late dining guests are eating, and vice versa.
+- You can eat a casual buffet dinner almost any time, if you want to skip your scheduled dinner.
 
 Step 3: Figure out when you can book your cruise activities.  Use this calculator:
 http://disneycruiselineblog.com/cruise-planning/booking-window-date-calculator/
-Be sure to pay your cruise balance in advance, and be ready to book activities on the first day you can, if you're highly motivated to book certain activities.
+Be sure to pay your cruise balance in advance, and be ready to book activities on the first day you can, if you're highly motivated to book specific activities.
 
 Step 3: Research the port adventures in advance.
 You can find sample activities for each port of call at https://disneycruise.disney.go.com/port-adventures/overview/, even before your booking window is open.  Choose your top 2-3 port adventures for each day, just in case your favorite is not available.
@@ -47,6 +49,16 @@ How do you know when the evening activities will occur?
 
 Step 5: Book your port adventures
 When your booking window opens, choose your favorite port adventures right away.  Most port adventures can be cancelled or re-scheduled up to 3 days before your cruise departs, but a few cannot be changed.
+Tips:
+- A cabana at Castaway Cay is extremely expensive, and there are plenty of comfortable places to sit and relax for free.  So, unless you have money to burn, skip it.
 
+Step 6: Book your special dinners
+If you'd like to have dinner at Palo and/or Remy, book them once you know what your port adventures and evening activities are.
 
+Step 7: Book other on-board activities
+If you want to attend the Frozen princess gretting, or the regular Princess Greeting, you can and should book them at the same time as port adventures.  You can also book (amazingly expensive) appointments at the Bibbidi Boppidy Botique, Royal Court Royal Tea, Spa, and so on.
 
+Step 7: Request a dining rotation
+Dinners in Animator's Palate are an special experience, not to be missed.  Be sure to request a dining rotation where you're in Animator's Palate when you are not dining at Palo or Remy.  You can request a dining rotation through your travel agent, or by calling Disney Cruise Line at 1 (800) 951-3532.
+
+That pretty much covers it!  The rest can be planned after you arrive on board.
