@@ -84,7 +84,7 @@ Day 1, Embarcation
 - Required safety drill around 4 PM
 - 4:15 PM Sail Away Deck Party
 - 5:45 PM Dinner at our assigned restaurant
-- 7:00 PM Show
+- 7:00 PM Show (we'll probably skip this one because it's more of an infomercial for ship activities)
 
 Day 2, Day At Sea
 - * 9:45 AM Disney Junior Character Breakfast
@@ -123,18 +123,18 @@ Day 5, Port of Call 2
 (This would be another good night for dinner at Palo or Remy.)
 
 Day 6, Star Wars Day At Sea
-Buffet breakfast
-Star Wars activities
-5:45 PM Dinner at our assigned restaurant, Star Wars menu
-7:00 PM Show
+- Buffet breakfast
+- Star Wars activities
+- 5:45 PM Dinner at our assigned restaurant, Star Wars menu
+- 7:00 PM Show
 
 Day 7, Disney Castaway Cay
-Buffet breakfst
-* 11:00 AM Port adventure
-BBQ lunch on the island
-5:45 PM Dinner at our assigned restaurant
-7:00 PM Show
+- Buffet breakfst
+- * 11:00 AM Port adventure
+- BBQ lunch on the island
+- 5:45 PM Dinner at our assigned restaurant
+- 7:00 PM Show
 
 Day 8, Disembarcation
-Early breakfast in your assigned restaurant, at your assigned time.  You need to be out of your room by your breakfast time.
-You must leave the ship right after breakfast.
+- Early breakfast in your assigned restaurant, at your assigned time.  You need to be out of your room by your breakfast time.
+- You must leave the ship right after breakfast.
