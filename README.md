@@ -20,11 +20,12 @@ Step 1: Book your itinierary and room, well in advance.
 Step 2: Choose early or late seating when you book the cruise.
 - This blog covers the pros and cons nicely: http://magicaldistractions.com/disney-cruise-dinner-seating/
 - We chose late seating for our first few cruises, but found it disruptive to go to a show, then dinner, have the kids Dine & Play for 45 minutes, and then pick them up for bedtime.  We're trying early seating next time.
-- If you're unsure, be aware that early seating fills up first.
+- If you're unsure, early seating fills up first.
 - If you don't get your first choice of dinner seating, ask to be put on the wait list.
-- Your show time will be opposite your dinner time: early dining guests see their show while the late dining guests are eating, and vice versa.  Most of the shows are fantastic, except for the Welcome Aboard show, which is boring for young children.
 - Your dinner reservations will be pre-assigned to a different restaurant each night.  See: https://disneycruise.disney.go.com/faq/dining-food-beverages/rotational-dining/
-- You can eat a casual buffet dinner almost any time, if you want to skip your scheduled dinner.
+- Your show time will be opposite your dinner time: early dining guests see their show while the late dining guests are eating, and vice versa.  You can't go to a main dining room if it's not your reserved time, because they won't have a table for you, but you can see any show at either the early or the late time.
+- You can eat a casual meal without reservations almost any time of day.  Our kids love the buffet and counter service restaurants.
+- You can also order room service almost any time of day.
 - You can choose to eat a formal sit-down breakfast in your assigned restaurant, or a casual buffet breakfast, each morning.
 
 Step 3: Figure out when you can book your cruise activities.  Use this calculator:
@@ -70,52 +71,56 @@ Step 7: Book other on-board activities
 
 Step 7: Request a dining rotation
 - Dinners in Animator's Palate are a special experience, not to be missed.  Be sure to request a dining rotation where you're in Animator's Palate when you are not dining at Palo or Remy.  You can request a dining rotation through your travel agent, or by calling Disney Cruise Line at 1 (800) 951-3532.
+- Dining rotations can be found on forums like disboards.com.
 
 That pretty much covers it!  The rest can be planned after you arrive on board.
 
 Sample Pre-Booked Itinerary for a Star Wars Day At Sea cruise.  Items with a * were pre-booked by me:
 
+The Eastern Caribbean rotations are AERAERA, ERAERAE and RAERAER. The first three nights are the rotation menus for each main dining room, the 4th night is pirate night, then princess night, captain's gala and the farewell menu. Formal night is Sunday, semiformal is Thursday.
+
 Day 1, Embarcation
-Check in, casual lunch on deck, explore the ship
-Required safety drill
-4:15 PM Sail Away Deck Party
-5:30 PM Dinner for the kids at the buffet
-Take the kids to the Oceaneers' Club or Lab, whichever is open
-* 7:30 PM Dinner at Remy for the adults.  There's a slight risk your suitcases won't be there by 6:30, but they should be.
-10:30 PM Pick up the kids, bedtime
-* Request a dinner rotation where Animator's Palate is NOT on Day 1
+- Check in, casual lunch on deck, explore the ship
+- Required safety drill around 4 PM
+- 4:15 PM Sail Away Deck Party
+- 5:45 PM Dinner at our assigned restaurant
+- 7:00 PM Show
 
 Day 2, Day At Sea
-* 9:45 AM Disney Junior Character Breakfast
-* 11:30 AM Princess dress-up package at Bibbidi Bobbidi Boutique
-Quick buffet lunch or snack
-* 1:15 PM Princess Gathering
-* 2:00 PM Frozen Meet and Greet
-5:45 PM Dinner at our assigned restaurant
-7:00 PM Show
+- * 9:45 AM Disney Junior Character Breakfast
+- * 11:30 AM Princess dress-up package at Bibbidi Bobbidi Boutique
+- Quick buffet lunch or snack
+- * 1:15 PM Princess Gathering
+- * 2:00 PM Frozen Meet and Greet
+- Probably formal night, so take formal pictures with the kids
+- 5:45 PM Watch the show with the kids
+- Get the kids a buffet dinner 
+- Take the kids to the Oceaneer's Club or Lab
+- * 7:30 PM Dinner at Remy for the adults
+- * Request a dinner rotation where Animator's Palate is NOT on Day 2
 
 Day 3, Day At Sea
-Buffet breakfast for the kids
-Take the kids to the Oceaneer's Club or Lab
-* 11:00 AM Brunch at Palo for the adults
-5:45 PM Dinner at our assigned restaurant
-7:00 PM Show
+- Buffet breakfast for the kids
+- Take the kids to the Oceaneer's Club or Lab
+- * 11:00 AM Brunch at Palo for the adults
+- 5:45 PM Dinner at our assigned restaurant
+- 7:00 PM Show
 
 Day 4, Port of Call 1
-Buffet breakfast
-* 8 AM Port Adventure
-Buffet lunch
-* 2:30 PM Pirate dress-up package at Bibbidi Bobbidi Boutique
-5:45 PM Dinner at our assigned restaurant, Pirate night
-7:00 PM Pirate Deck Party
+- Buffet breakfast
+- * 8 AM Port Adventure
+- Buffet lunch
+- * 2:30 PM Pirate dress-up package at Bibbidi Bobbidi Boutique
+- 5:45 PM Dinner at our assigned restaurant, pirate night
+- 7:00 PM Pirate Deck Party
 
 Day 5, Port of Call 2
-Buffet breakfast
-* 8 AM Port Adventure
-Buffet lunch
-5:45 PM Dinner at our assigned restaurant
-7:00 PM Show
-(This would be another good candidate for dinner at Palo or Remy.)
+- Buffet breakfast
+- * 8 AM Port Adventure
+- Buffet lunch
+- 5:45 PM Dinner at our assigned restaurant, probably princess night
+- 7:00 PM Show
+(This would be another good night for dinner at Palo or Remy.)
 
 Day 6, Star Wars Day At Sea
 Buffet breakfast
