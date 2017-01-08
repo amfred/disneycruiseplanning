@@ -130,6 +130,7 @@ Day 4, Port of Call 1
 - ^ 2:30 PM Pirate dress-up package at Bibbidi Bobbidi Boutique
 - 5:45 PM Dinner at our assigned restaurant, pirate night
 - + Time TBD, Pirate Deck Party
+- 8:00 PM Show
 
 Day 5, Port of Call 2
 ---------------------
@@ -146,6 +147,7 @@ Day 6, Star Wars Day At Sea
 - Star Wars activities
 - 5:45 PM Dinner at our assigned restaurant, Star Wars menu
 - + Time TBD, Star Wars deck party
+- 8:00 PM Show
 
 Day 7, Disney Castaway Cay
 --------------------------
