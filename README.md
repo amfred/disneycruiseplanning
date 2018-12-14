@@ -61,6 +61,7 @@ Step 5: Learn when special events will take place, so you can avoid conflicts wi
 - The Frozen Deck Party is a feature of European cruises, replacing the Pirate Night.  It includes fake snow instead of fireworks.
 - Reserve the last night of the cruise for packing up.  You'll need to repack a smaller bag for overnight, and your main bags will be taken away at dinner time, not to be seen again until after you disembark.  It's a busy night.
 - If you eliminate the nights with special events, you will know which nights are best for Palo or Remy reservations.
+- If you're departing from Port Canaveral, check [the launch schedule](https://spaceflightnow.com/launch-schedule/) to see if any rockets are launching from Cape Canaveral or the Kennedy Space Center on your first or last day.  Note that launches may be rescheduled at any time.
 
 Step 6: Book your port adventures.
 ----------------------------------
@@ -101,9 +102,10 @@ Appendix: Sample Pre-Booked Itinerary for a Star Wars Day At Sea Cruise
 
 Day 1, Embarkation
 ------------------
-- Check in, casual lunch on deck, explore the ship
-- + Required safety drill around 4 PM
-- + 4:15 PM Sail Away Deck Party
+- Check in at noon
+- Casual lunch on deck, explore the ship
+- Required safety drill around 4 PM
+- 4:15 PM Sail Away Deck Party
 - 5:45 PM Dinner at our assigned restaurant
 - 8:00 PM Show (more of an infomercial for ship activities)
 
