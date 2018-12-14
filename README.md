@@ -75,13 +75,14 @@ Step 7: Book your special meals.
 - If you'd like to have dinner at Palo and/or Remy, reserve your spot right after you schedule your port adventures and evening activities.  The first and last nights of the cruise book up last.  Days at sea book up first.  I don't recommend a fancy dinner on the last night of the cruise, because we usually find that night stressful.
 - If you have children, you can take them to the buffet first, and then bring them to the kids' club while you have your meal.  They offer the children food in the kids' clubs at mealtime, but they may not stop playing to eat.
 - The Character Breakfast is free and fun, but you need to book in advance to get preferred seating times.  Try not to be late, as they bring characters to your seating area just once, based on your reservation time.
+- The small-group tasting events in the bars are fun, and you'll learn how to make the drinks as well.
 
 Step 8: Book other on-board activities.
 ---------------------------------------
-- If you want to attend the Frozen Meet and Greet, or the Princess Greeting, you should book them at the same time as port adventures.  These are the only opportunities to take photos with most of the Disney Pricesses.  The Frozen Meet and Greet is impressive.
+- If you want to attend the Frozen Meet and Greet, or the Princess Greeting, you should book them at the same time as port adventures.  These are the only opportunities to take photos with most of the Disney Pricesses.  The Frozen Meet and Greet is impressive and highly recommended, even for adults.
 - You can also pre-book (expensive) appointments at the Bibbidi Bobbidy Botique, Royal Court Royal Tea, the Spa, and so on.
-- It's helpful to leave large unscheduled blocks of time so you can enjoy the ship.  Sometimes that means booking a few events back-to-back, as in the Day 2 example below.
-- You'll find out about the rest of the onboard activities when you get the daily newsletter in your room.
+- It's helpful to leave large unscheduled blocks of time so you can relax and enjoy the ship.  Sometimes that means booking a few events back-to-back, as in the Day 2 example below.
+- You'll find out about the rest of the onboard activities when you get the daily newsletter in your room.  There are usually 3-4 activities that don't require a reservation at any given time and day.
 
 Step 9: Request a dining rotation.
 ----------------------------------
@@ -146,7 +147,7 @@ Day 5, Port of Call 2
 - Buffet lunch
 - 5:45 PM Dinner at our assigned restaurant, formal night
 - 8:00 PM Show
-- + 9:30 PM, Star Wars teaser show in the lobby
+- 9:30 PM, Star Wars teaser show in the lobby
 
 Day 6, Star Wars Day At Sea
 ---------------------------
@@ -154,7 +155,7 @@ Day 6, Star Wars Day At Sea
 - Star Wars activities
 - 5:45 PM Dinner at our assigned restaurant, Star Wars menu
 - 8:00 PM Show
-- + 9:30 PM, Star Wars show on deck, fireworks, and dance party
+- 9:30 PM, Star Wars show on deck, fireworks, and dance party
 
 Day 7, Disney Castaway Cay
 --------------------------
