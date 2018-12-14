@@ -19,16 +19,17 @@ Step 1: Book your itinierary and room, well in advance.
 - The adults in our family prefer more days in port to explore new cultures, while the children prefer more days at sea to enjoy the ship's activities, pools, waterslides, and kids' club.  You can decide what's best for your family!
 - The smaller ships and larger ships each have their own advantages.  Don't let ship size be the determining factor.  Larger ships have more themed areas and activities, while smaller ships feel more accessible and relaxing.
 - The Deluxe Family Oceanview Stateroom with Verandah is fantastic for a family of 4-5.  Or, check out the Deluxe Family Oceanview Stateroom if you don't care about a balcony.  The two-room bathroom makes life easier.
-- Try to get a cabin midship, or closer to the kids' clubs, if you have children.
+- The ships are long.  To save time, you can get a cabin midship, or closer to the kids' clubs if you have children.
+- Two decks below the pool is ideal: it's quiet, but close enough to the pool that you don't need to take an elevator up.
 - Cruisecritic.com has informative and helpful cabin reviews.  If you can't find a review for your exact ship and cabin, you can check the review for the same cabin on the sister ship: Magic/Wonder, or Fantasy/Dream.
 
 Step 2: Choose early or late seating when you book the cruise.
 --------------------------------------------------------------
 - This blog covers the pros and cons nicely: [http://magicaldistractions.com/disney-cruise-dinner-seating/](http://magicaldistractions.com/disney-cruise-dinner-seating/)
 - We chose late seating for our first few cruises, but found it disruptive to go to a show, then dinner, have the kids Dine & Play for 45 minutes, and then pick them up for bedtime.  We prefer the early seating now.
-- If you're unsure, early seating fills up first.
+- Early seating fills up first.
 - If you don't get your first choice of dinner seating, ask to be put on the wait list.
-- Your dinner reservations will be pre-assigned to a different restaurant each night.  See this FAQ for more details: [https://disneycruise.disney.go.com/faq/dining-food-beverages/rotational-dining/](https://disneycruise.disney.go.com/faq/dining-food-beverages/rotational-dining/)
+- Your dinner reservations will be pre-assigned to a different restaurant each night, and your waiter will follow you.  We're big fans of the rotational dining.  See this FAQ for more details: [https://disneycruise.disney.go.com/faq/dining-food-beverages/rotational-dining/](https://disneycruise.disney.go.com/faq/dining-food-beverages/rotational-dining/)
 - Your show time will be opposite your dinner time: early dining guests see their show while the late dining guests are eating, and vice versa.  You can't go to a main dining room if it's not your reserved time, because they won't have a table for you, but you can see any show at either the early or the late time.
 - You can eat a casual meal without reservations almost any time of day.  Our kids love the buffet and counter service restaurants.
 - You can also order room service almost any time of day.
@@ -57,9 +58,9 @@ Step 5: Learn when special events will take place, so you can avoid conflicts wi
    - The Star Wars Day at Sea includes a special dinner menu.  It also includes a dance party in the evening, with fireworks.
    - There are Star Wars-related activities on other days, such as the Star Wars movies in the theaters, but not as many as some people expect.
 - Pirate Night is a feature of Caribbean cruises.  Pirate costumes are encouraged, but not required.  It includes a pirate-themed dinner with a rowdy pirate "invasion".  On our cruise that included Pirate Night but not the Star Wars Day at Sea, Pirate Night also included an evening show on deck with fireworks.  When we had both Pirate Night and the Star Wars deck party, the fireworks were only at the Star Wars deck party.  You can check with guest services when you get onboard.
-- The Frozen Deck Party is a feature of European cruises, and it replaces the Pirate Night.  It includes fake snow instead of fireworks.
-- Save the last night of the cruise for packing up.  You'll need to repack a smaller bag for overnight, and your main bags will be taken away at dinner time, not to be seen again until after you disembark.  It's a busy night.
-- If you eliminate the nights with special events, you will know which nights are best for Palo or Remy reservations.  We love both.
+- The Frozen Deck Party is a feature of European cruises, replacing the Pirate Night.  It includes fake snow instead of fireworks.
+- Reserve the last night of the cruise for packing up.  You'll need to repack a smaller bag for overnight, and your main bags will be taken away at dinner time, not to be seen again until after you disembark.  It's a busy night.
+- If you eliminate the nights with special events, you will know which nights are best for Palo or Remy reservations.
 
 Step 6: Book your port adventures.
 ----------------------------------
@@ -73,17 +74,18 @@ Step 7: Book your special meals.
 - A high-end brunch is also available at these restaurants on days at sea.
 - If you'd like to have dinner at Palo and/or Remy, reserve your spot right after you schedule your port adventures and evening activities.  The first and last nights of the cruise book up last.  Days at sea book up first.  I don't recommend a fancy dinner on the last night of the cruise, because we usually find that night stressful.
 - If you have children, you can take them to the buffet first, and then bring them to the kids' club while you have your meal.  They offer the children food in the kids' clubs at mealtime, but they may not stop playing to eat.
-- The Character Breakfast is free and fun, but you do need to book in advance to get preferred seating times.  Try not to be late, as they bring characters to your seating area just once, based on your reservation time.
+- The Character Breakfast is free and fun, but you need to book in advance to get preferred seating times.  Try not to be late, as they bring characters to your seating area just once, based on your reservation time.
 
 Step 8: Book other on-board activities.
 ---------------------------------------
-- If you want to attend the Frozen Meet and Greet, or the Princess Greeting, you should book them at the same time as port adventures.  These are the only opportunities to take photos with most of the Disney Pricesses.  The Frozen Meet and Greet is particularly impressive.
-- You can also pre-book (amazingly expensive) appointments at the Bibbidi Bobbidy Botique, Royal Court Royal Tea, the Spa, and so on.
+- If you want to attend the Frozen Meet and Greet, or the Princess Greeting, you should book them at the same time as port adventures.  These are the only opportunities to take photos with most of the Disney Pricesses.  The Frozen Meet and Greet is impressive.
+- You can also pre-book (expensive) appointments at the Bibbidi Bobbidy Botique, Royal Court Royal Tea, the Spa, and so on.
 - It's helpful to leave large unscheduled blocks of time so you can enjoy the ship.  Sometimes that means booking a few events back-to-back, as in the Day 2 example below.
+- You'll find out about the rest of the onboard activities when you get the daily newsletter in your room.
 
 Step 9: Request a dining rotation.
 ----------------------------------
-- Your first two dinners in Animator's Palate are a special event, not to be missed.  Be sure to request a dining rotation where you're in Animator's Palate when you are not dining at Palo or Remy.  You can request a dining rotation through your travel agent, or by calling Disney Cruise Line at <tel>1 (800) 951-3532</tel>.
+- Your first two dinners in Animator's Palate are special dinner shows, not to be missed.  Be sure to request a dining rotation where you're in Animator's Palate when you are not dining at Palo or Remy.  You can request a dining rotation through your travel agent, or by calling Disney Cruise Line at <tel>1 (800) 951-3532</tel>.
 - Dining rotations for your specific itinerary can be found on forums like disboards.com.
 - Your dining rotation won't be confirmed until you arrive on board.  You can request a change at that time, but there's no guarantee they'll be able to accomodate your request.
 
@@ -92,7 +94,9 @@ Step 9: Request a dining rotation.
 Appendix: Sample Pre-Booked Itinerary for a Star Wars Day At Sea Cruise
 =======================================================================
 - Items with a ^ were pre-booked by me, and items with a + were scheduled by the cruise director.
-- The Eastern Caribbean rotations were AERAERA, ERAERAE and RAERAER. The first three nights were the rotation menus for each main dining room, the 4th night was pirate night, then princess night, captain's gala and the farewell menu. Formal night was Sunday, semiformal was Thursday.  The rotations are different for different itineraries.
+- The Eastern Caribbean rotations were AERAERA, ERAERAE and RAERAER. 
+  - A = Animator's Palate, E = Enchanted Garden, R = Royal Palace
+  - The first three nights were the rotation menus for each main dining room.  The 4th night was pirate night, then princess night, captain's gala and the farewell menu. The rotations are different for different itineraries.
 
 Day 1, Embarkation
 ------------------
